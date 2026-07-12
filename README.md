@@ -13,3 +13,5 @@ https://www.mediafire.com/file/m84ojzsmnfijepp/DXTR_Caprice_2012.zip/file
 
 
 https://www.mediafire.com/file/er3lvefml0tnllx/m7corolla.zip/file
+
+https://www.mediafire.com/file/bzvkzvc9swwgog4/m7_camry7.zip/file
